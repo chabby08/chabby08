@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on you.
 - 📫 How to reach me ... gmail: chubbylitamancenido@gmail.com
 - 😄 Pronouns: JU-Vi
-- ⚡ Fun fact: Learnign new things.
+- ⚡ Fun fact: Learning new things.
 
 <!---
 chabby08/chabby08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
